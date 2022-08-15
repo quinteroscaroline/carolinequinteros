@@ -1,4 +1,4 @@
-# Olá! Eu sou a Caroline Quinteros! 
+# Eu sou a Caroline Quinteros! 
 
 
 
